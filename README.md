@@ -13,6 +13,9 @@ What kind of projects are you interested in forever?
 Do you have plans for your business?  
 
 
+How can the instagram make money for customers, how can we make money on instgram?
+
+
 
 
 
